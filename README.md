@@ -1,2 +1,2 @@
-# lets_try_out
-Lets Try stuff out now
+# Yo Dudes can ya hear ma?
+Now is the time
